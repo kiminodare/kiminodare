@@ -7,7 +7,6 @@
 
 - 📧 Email: [alderamemi@gmail.com](mailto:alderamemi@gmail.com)  
 - 📍 Location: Bogor, Indonesia  
-- 📱 WhatsApp: 0851-5539-8795  
 
 ---
 
